@@ -1,0 +1,2 @@
+# Retrospective 
+One thing that went well during my project process was my navigation. Locating everything and being able to organize my files was incredibly smooth. One thing that went wrong was my time management. I mistakingly put more time into another project not realizing this one would require much more attention. One thing I'd do differrently in the future is starting this project earliers allowing for myself to come up with a more extensive plan.  
